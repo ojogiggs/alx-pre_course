@@ -1,2 +1,2 @@
 My first readme
-Toluwani is beautiful girl
+Toluwani is a beautiful girl
